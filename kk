@@ -1,7 +1,1 @@
-Intent segona Modificació
-
-   _________
-
-     (·_·)
-   _________
-
+22
